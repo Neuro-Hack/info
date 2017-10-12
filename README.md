@@ -17,6 +17,7 @@ A hackathon bringing together developers, engineers, doctors, patients & others 
 
 🎗️ Sponsored by xxxxx
 
+
 ## Get Involded
 
-Want to get involded? Drop me a message here: [Telegram Community](http://t.me/joinchat/G1fp6) 👈
+Want to get involved as an organiser? Drop us a message here: [Telegram Community](http://t.me/joinchat/G1fp6) 👈
