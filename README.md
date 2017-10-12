@@ -1,6 +1,6 @@
 # Neuro Hack
 
-[Promotional website - coming soon]() 👈
+[Promotional website - link coming soon]() 👈
 
 [Twitter](https://twitter.com/neuro_hack) 👈
 
